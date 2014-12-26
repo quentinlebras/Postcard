@@ -1,4 +1,4 @@
 Postcard
 ========
-** iOs 8 - Course**
+**iOs 8 - Course**
 *So excited*
